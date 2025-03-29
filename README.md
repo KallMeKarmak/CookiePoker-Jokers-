@@ -1,4 +1,4 @@
-This contains the Balatro Cookie Run modpack!
+This contains the Balatro Cookie Run modpack's joker cards!
 
 Devsisters own Cookie Run Kingdom (please don't sue me)
 
